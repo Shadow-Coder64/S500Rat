@@ -7,3 +7,5 @@ S500RAT
 ![xx](https://user-images.githubusercontent.com/111996313/229652115-a609895a-b7e3-4ba6-86fa-359dfc244224.png)
 ![cc](https://user-images.githubusercontent.com/111996313/229652119-f8060da3-2846-4058-97cb-0a535e758073.png)
 ![xx12314](https://user-images.githubusercontent.com/111996313/229652121-b2747991-df5f-4ebd-865e-b5cf133e73f8.png)
+
+Discord: asdasd
